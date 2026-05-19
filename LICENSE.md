@@ -1,4 +1,4 @@
-# 
+# top Adobe Photoshop para PC ferramentas é o melhor Adobe Photoshop para PC ferramentas com ações automatizadas e edição baseada em camadas. Seguro, confiável e otimizado para
 
 
 
